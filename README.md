@@ -1,2 +1,1 @@
-# Aprendiendo
-Aprediendo
+nahh soy humano XD
